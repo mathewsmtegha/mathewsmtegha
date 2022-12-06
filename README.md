@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mathewsZiba
-- I’m a Cybersecurity 
+- I’m a Cybersecurity Analyst
 - 🌱 I’m learning the skills needed to become a better cybersecurity analyst
 -  I’m looking forward to collaborating with anyone with the same goal
 - 📫 you can reach me @ mathewsmtegha7@gmail.com 
